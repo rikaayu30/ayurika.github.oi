@@ -1,0 +1,1 @@
+# ayurika.github.oi
